@@ -1,3 +1,4 @@
 Git is something I'm learning! 
 I hope i can goot to do it.
 It's very funning.
+=.= -.- 
