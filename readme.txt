@@ -3,3 +3,4 @@ I hope i can goot to do it.
 It's very funning.
 =.= -.- 
 laughing
+wo yijing buzhidao shuoshenme le 
