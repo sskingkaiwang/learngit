@@ -5,4 +5,4 @@ It's very funning.
 laughing
 wo yijing buzhidao shuoshenme le 
 
-Creating a new branch is quick but & merge???
+Creating a new branch is quick but merge ?
