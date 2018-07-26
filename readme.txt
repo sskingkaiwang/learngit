@@ -4,3 +4,5 @@ It's very funning.
 =.= -.- 
 laughing
 wo yijing buzhidao shuoshenme le 
+
+Creating a new branch is quick
